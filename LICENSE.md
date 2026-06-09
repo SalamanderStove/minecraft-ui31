@@ -1,4 +1,4 @@
-#  
+#  automatic minecraft Script offers the most advanced minecraft Script, with one-hit kill and speed. Perfect for dominating any match.
 
 
 
